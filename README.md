@@ -1,4 +1,7 @@
-✧ miolu / mio for short
+✧ miolu / mio for short ☆
+
+![image](https://github.com/huachengs/miolu/assets/150307116/9259c6cc-511f-4bc5-85d3-b33299d7af7a)
+
 
 ⋆ˊˎ-•̩̩͙-　*̩̩̥͙ `
 
